@@ -1,6 +1,6 @@
 - Hi, I’m @Crhaisdeonrgian
 - I’m interested in new experience in IT
-- I’m currently learning at MIPT(Russia)
+- I’m currently learning at MIPT(The Department of Control and Applied Mathematics)
 - You can find me in: 
     ~vk: https://vk.com/vozhgai 
     ~gmail: vozhga.im@phystech.edu 
