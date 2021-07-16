@@ -1,5 +1,5 @@
 - Hi, I’m @Crhaisdeonrgian
-- I look for new experience in IT
+- I'm looking for new experience in IT
 - I study at MIPT(The Department of Control and Applied Mathematics)
 - You can find me in: 
     ~vk: https://vk.com/vozhgai 
